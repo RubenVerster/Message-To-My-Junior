@@ -1,5 +1,6 @@
 # Message-To-My-Senior
-Evening Sir. Thank you for taking the time to read this 
+Evening Sir
+Thank you for taking the time to read this 
 
 ## The Big Goal I Work Towards Achieving
 
